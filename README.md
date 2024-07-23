@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @Anshika-Sharma2
+- Tech Enthusiast
+- A beginner
